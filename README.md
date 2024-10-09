@@ -1,4 +1,4 @@
 # Informativos Fitness
-- Emily Júnia
+- Emilly Júnia
 - Micael Pereira da Silva
 - Nífane Borges Guimarães
